@@ -12,3 +12,7 @@ He / Him Preferred
 -------------------
 
 ![Image](https://github.com/user-attachments/assets/70e9a5dd-1529-4d46-9bab-fa0d5277ba46)
+ ![Image](https://github.com/user-attachments/assets/79a4424d-07f3-4233-8577-d70b64bf2853)
+
+ ![Image](https://github.com/user-attachments/assets/efbe6ae4-3c36-4543-9a13-d2ea94e238b3)
+ 
