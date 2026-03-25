@@ -1,6 +1,6 @@
 <img width="1280" height="184" alt="Image" src="https://github.com/user-attachments/assets/1a2b4e69-150d-4957-a044-05b3d1b6e68e" />
 
-<img width="250" height="200" alt="Image" src="https://github.com/user-attachments/assets/3b0b6da2-4ef0-4afa-8987-da4332dbba67" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/3b0b6da2-4ef0-4afa-8987-da4332dbba67" />
 
 • 𝘕𝘢𝘮𝘦 : 𝘋𝘶𝘱𝘪
 
