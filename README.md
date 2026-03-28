@@ -1,33 +1,13 @@
-$\textcolor{#a47dab}{♥♦}$
-<img width="2048" height="1461" alt="Image" src="https://github.com/user-attachments/assets/ec67df2f-5638-49c0-a0fa-4dc3d8f9c736" />
-<img width="1280" height="184" alt="Image" src="https://github.com/user-attachments/assets/1a2b4e69-150d-4957-a044-05b3d1b6e68e" />
-<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/3b0b6da2-4ef0-4afa-8987-da4332dbba67" />
+<img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/83ca3e7e-f439-453b-b22a-7307127b9c11" />
 
- <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/ecbfb0e3-bf4d-4568-8c81-e94760954ed6" />
-    
-• 𝘕𝘢𝘮𝘦 : 𝘋𝘶𝘱i
+$${\\color{#A6938F}\\text{Brad Thaniyel . ♥}}$$
 
-• 𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴: 𝘏𝘦/𝘏𝘪𝘮
+<img width="2500" height="3000" alt="Image" src="https://github.com/user-attachments/assets/ff249305-88c1-4d76-ae84-ac87ee570125" />
 
-• 𝘉𝘢𝘴𝘪𝘤 𝘋𝘕𝘐
+<img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/83ca3e7e-f439-453b-b22a-7307127b9c11" />
 
-• 𝘔𝘪𝘯𝘰𝘳
 
-my tags:
+$${\\color{#877463}\\text{.... Dupi or Kairu .  }}$$ 
+ $${\\color{#5D0042}\\text{.... He. him .  }}$$
 
-![Image](https://github.com/user-attachments/assets/8f9f25ef-ad38-457d-8d62-3c550c15cb24) ![Image](https://github.com/user-attachments/assets/d3c7646b-dbdf-49e7-92bc-f543445d2905) ![Image](https://github.com/user-attachments/assets/a839d18c-aea9-43f6-a566-fc3410ba5062) ![Image](https://github.com/user-attachments/assets/fdc9dd00-7e35-4215-9e56-808b20a45c27) ![Image](https://github.com/user-attachments/assets/f4b9add3-ce43-4f34-b77d-5e18ed4a1e75) ![Image](https://github.com/user-attachments/assets/a4250b6b-1177-41db-9755-cb361b229abd) ![Image](https://github.com/user-attachments/assets/8531e671-be66-49d2-9ca1-3dba5df0505a) ![Image](https://github.com/user-attachments/assets/cd74faba-851d-4e61-a045-5fa0c04732e5) ![Image](https://github.com/user-attachments/assets/b18e2c0a-32cf-424d-9d27-4c215c829320) ![Image](https://github.com/user-attachments/assets/99989a87-7cb5-4e79-afce-04d23a118add) ![Image](https://github.com/user-attachments/assets/f51b7d65-434d-4f69-ab97-d127a212adab) ![Image](https://github.com/user-attachments/assets/723077a8-b77c-4fb9-a3cb-a8e636d3f028) ![Image](https://github.com/user-attachments/assets/148fc131-a2a5-4b81-9dbc-90bfaaa5d7ea) ![Image](https://github.com/user-attachments/assets/ba4deaec-30e8-4c6b-847d-3072bfccfb0c) ![Image](https://github.com/user-attachments/assets/7217d052-9d3d-4cfd-9ebd-ac9129407b19)
-
-<img width="1280" height="90" alt="Image" src="https://github.com/user-attachments/assets/1a2b4e69-150d-4957-a044-05b3d1b6e68e" /> 
-
-<img width="398" height="855" alt="Image" src="https://github.com/user-attachments/assets/0d83680b-351e-4472-9d00-1df4620d3077" /> 
-us !!
-
-![Image](https://github.com/user-attachments/assets/3592a12b-d80e-4f5d-8ddb-f7b99cd53a05)
-
-![Image](https://github.com/user-attachments/assets/ae17f84e-a4a1-4f66-8e82-fb2748e209b9) @astroboyfriend ![Image](https://github.com/user-attachments/assets/7b3129d3-d209-4391-910f-d9a042159e17) 
-
-![Image](https://github.com/user-attachments/assets/93aa659f-504e-4dcf-8e23-0e09dc782468) @brandon687593 ![Image](https://github.com/user-attachments/assets/49b62e0d-f067-4ebe-b841-04041da39205)
-
-<img width="1183" height="157" alt="Image" src="https://github.com/user-attachments/assets/e80341a2-21f0-40a3-8f39-225573b14b9d" />
-
-![Image](https://github.com/user-attachments/assets/16d6e3be-500c-43e8-b507-10636b1a31ef) ![Image](https://github.com/user-attachments/assets/c8458e4d-8019-4211-9f29-9a1b8a25bc21) ![Image](https://github.com/user-attachments/assets/c8458e4d-8019-4211-9f29-9a1b8a25bc21) ![Image](https://github.com/user-attachments/assets/16d6e3be-500c-43e8-b507-10636b1a31ef) ![Image](https://github.com/user-attachments/assets/c8458e4d-8019-4211-9f29-9a1b8a25bc21) ![Image](https://github.com/user-attachments/assets/c8458e4d-8019-4211-9f29-9a1b8a25bc21)  ![Image](https://github.com/user-attachments/assets/41e3975b-8939-49f6-aa21-c5ca4fec4b8e) ![Image](https://github.com/user-attachments/assets/16d6e3be-500c-43e8-b507-10636b1a31ef) ![Image](https://github.com/user-attachments/assets/c8458e4d-8019-4211-9f29-9a1b8a25bc21) ![Image](https://github.com/user-attachments/assets/c8458e4d-8019-4211-9f29-9a1b8a25bc21) ![Image](https://github.com/user-attachments/assets/16d6e3be-500c-43e8-b507-10636b1a31ef) ![Image](https://github.com/user-attachments/assets/c8458e4d-8019-4211-9f29-9a1b8a25bc21) ![Image](https://github.com/user-attachments/assets/c8458e4d-8019-4211-9f29-9a1b8a25bc21)
+<img width="640" height="36" alt="Image" src="https://github.com/user-attachments/assets/100f2934-d5e6-42b6-b594-873def8f0559" />
